@@ -16,5 +16,4 @@ At Salt Lake tutors we love what we do and want to share our joy of learning wit
 - Math and Science for all ages and levels from elementary to college level.
 
 ### PRICING
-
-It is important to us to keep our prices low, we don’t find it necessary to charge 50-100 dollars an hour to do something we love to do.  Depending on the subject most sessions cost between 15-25 dollars when conducted in the downtown SLC area.  Sessions conducted in the Greater Salt Lake area, depending on subject, cost between 25-35 dollars.  We give multiple hour and multiple student discounts and are flexible on times and locations.
+It is important to us to keep our prices low; we don’t find it necessary to charge 50-100 dollars an hour to do something we love to do.  Depending on the subject most sessions cost between 15-25 dollars when conducted in the downtown SLC area.  Sessions conducted in the Greater Salt Lake area, depending on subject, cost between 25-35 dollars.  We give multiple hour and multiple student discounts and are flexible on times and locations.
