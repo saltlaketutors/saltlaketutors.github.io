@@ -1,8 +1,10 @@
 ---
 layout: page
 title: About Us
-subtitle: Experienced, Affordable Teachers and Tutors
+subtitle: Idealists making a living
 ---
+
+*"...the best teaching can be done only when there is a direct individual relationship between a student and a good teacher — a situation in which the student discusses the ideas, thinks about the things, and talks about the things. It’s impossible to learn very much by simply sitting in a lecture, or even by simply doing problems that are assigned..."* **- Richard Feynman** (you know, the greatest american physicist to ever live)
 
 At Salt Lake tutors we love what we do and want to share our joy of learning with you at an affordable price.  Our tutors are extremely experienced and bring lots of variety to our services.  We have tutors who have taught ESL around the world, have specialized in adult education, have developed creative solutions for students of all ages struggling in math, and much more. No matter what your curiosity or struggle we can help in a way that other tutors cannot.
 
