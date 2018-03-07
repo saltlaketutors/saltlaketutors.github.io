@@ -10,8 +10,8 @@ At Salt Lake tutors we love what we do and want to share our joy of learning wit
 
 - ESL Certified tutors with international experience.
 - Foreign language services in German and Turkish.
-- Reading and Writing for all levels
-- Math and Science for all ages and levels from elementary to college level: **Math** (Primary School-Algebra, Precalculus/Trigonometry, Single through Multi-variable Calculus, Analysis) **Physics** ( undergrad: elementary mechanics/ electricity and magnetism, electromagnetism, classical mechanics, introductory quantum mechanics
+- Essay writing assistance and critical reading development
+- Math and Science for all ages and levels from elementary to college level.
 
 ### PRICING
 
